@@ -1,1 +1,1 @@
-www.goteamukraine.org
+https://www.goteamukraine.org/
